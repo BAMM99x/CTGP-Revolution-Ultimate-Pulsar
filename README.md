@@ -1,1 +1,1 @@
-CTGP Revolution Classic
+CTGP Revolution Classic and Luminous Redux
